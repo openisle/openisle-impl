@@ -24,5 +24,27 @@ the idea or better the dream of openisle is to create a concept of a places, whe
 ### capitalism isle
 - ofcourse it's also possible to have a capitalism isle
 
+### hippie isle
+- nothing to say
+
 ## why a island in water
 - because the earth has a lot of water and there is a lot of space
+
+## How can we start
+- there will be a lot of problems. we have to find and analyze them and find solutions step by step
+
+### Who can help?
+- Architects
+- Economists
+- Lawyers
+- Politicians
+- Craftmans
+- Entrepreneurs
+- everyone, which want's to create a better world
+
+### Problems
+- international law
+- how much space do we need
+- how can we produce food
+- 
+
